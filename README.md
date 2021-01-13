@@ -5,6 +5,10 @@
 My name's Samyra, i'm in the Middle School 7th grade and i'm from Brazil. I pretent to be an software enginner back-end when i grow up (For now, i just do some things hehehe) And i hope to have a great experience in my way to my ✨*dreams*✨ 😊💖
 * Pronouns: She/Her 
 * languages: Phython and Javascritp
-* College: Computer Engineering 
+* College: Computer Engineering                                                                           
 * I guess is that for now hehehe 😅
+
+
+     ![tenor (1)](https://user-images.githubusercontent.com/77402118/104514428-0166b980-55d0-11eb-967f-946ec6adc56d.gif)
+
 
