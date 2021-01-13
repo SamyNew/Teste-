@@ -7,3 +7,4 @@ My name's Samyra, i'm in the Middle School 7th grade and i'm from Brazil. I pret
 * languages: Phython and Javascritp
 * College: Computer Engineering 
 * I guess is that for now hehehe 😅
+
