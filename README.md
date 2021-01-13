@@ -11,6 +11,6 @@ My name's Samyra, i'm in the Middle School 7th grade and i'm from Brazil. I pret
 
      ![tenor (1)](https://user-images.githubusercontent.com/77402118/104514428-0166b980-55d0-11eb-967f-946ec6adc56d.gif)
      
-                                             *"Eu ai em cima"*
+                      *"Eu ai em cima"*
 
 
