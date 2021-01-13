@@ -1,5 +1,4 @@
-## Hi guys, it's me Samy ![beaming_face_with_smiling_eyes_256_2 (1)](https://user-images.githubusercontent.com/77402118/104515128-21e34380-55d1-11eb-9a47-8b669ef190fe.gif)
- 🤙🍃
+## Hi guys, it's me Samy 🤙🍃
 
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=flat-square&logo=instagram&logoColor=white)](https://www.instagram.com/samy_nandes_/)     [![Spotify](https://img.shields.io/badge/Spotify-1ED760?style=flat-square&logo=Spotify&logoColor=white)](https://open.spotify.com/user/sn6nta7afo1jsudajncmxwrgt?si=U6zbF6QUToWatPaoIHQeKg)     [![Medium](https://img.shields.io/badge/Medium-12100E?style=flat-square&logo=Medium&logoColor=white)](https://medium.com/@samynandes/about)
 
